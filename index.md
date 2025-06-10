@@ -15,12 +15,12 @@ kessietheliard@gmail.com
 
 ## Education
 
-## 2024 - Présent 
+### 2024 - Présent 
 - Certificat en Archivistique Université Laval
-## 2021 - 2023 
+### 2021 - 2023 
 - Maîtrise en Histoire de l’art Université Concordia
 Titre du mémoire : Tim Tim ? Bwa Chèch ! : Documentation de la présence des artistes visuels haïtiens à Montréal 1971-1986
-## 2017 - 2021 
+### 2017 - 2021 
 - Baccalauréat en Histoire de l’art Université Concordia 
 
 
