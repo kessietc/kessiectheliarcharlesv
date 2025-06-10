@@ -15,23 +15,23 @@ kessietheliard@gmail.com
 
 ## Education
 
-2024 - Présent 
+## 2024 - Présent 
 Certificat en Archivistique Université Laval
-2021 - 2023 
+## 2021 - 2023 
 Maîtrise en Histoire de l’art Université Concordia
 Titre du mémoire : Tim Tim ? Bwa Chèch ! : Documentation de la présence des artistes visuels haïtiens à Montréal 1971-1986
-2017 - 2021 
+## 2017 - 2021 
 Baccalauréat en Histoire de l’art Université Concordia 
 
 
 ## Publications
 
 - « Documenter la marge depuis la marge : récit de recherche sur les artistes haïtiens à Montréal ». Global Media Journal — Canadian Édition : Black Quebec Studies, (Soumis pour révision par les pairs)
-« From Islands to Island : l’espace de l’art visuel haïtien et caribéen durant la Révolution tranquille ». Journal of the Canadian Historical Association (Soumis pour révision par les pairs)
-«Le gout de la critique : une poétique de l’attention », Esse Arts + Opinions , 2024
-« Rose-Marie Desruisseau ». AWARE Women artists / Femmes artistes, 2024. https://awarewomenartists.com/artiste/rose-marie-desruisseau/.
-« Monde Bossale, Af-Flux Biennale Transnationale Noire, Montréal ». Esse Arts + Opinions No. 104 (2022) : 92–93.
-« Compte rendu de While Black à Montréal ». Dans Apertura, Dominique Fontaine (2023) : 31-34.
+- « From Islands to Island : l’espace de l’art visuel haïtien et caribéen durant la Révolution tranquille ». Journal of the Canadian Historical Association (Soumis pour révision par les pairs)
+- «Le gout de la critique : une poétique de l’attention », Esse Arts + Opinions , 2024
+- « Rose-Marie Desruisseau ». AWARE Women artists / Femmes artistes, 2024. https://awarewomenartists.com/artiste/rose-marie-desruisseau/.
+- « Monde Bossale, Af-Flux Biennale Transnationale Noire, Montréal ». Esse Arts + Opinions No. 104 (2022) : 92–93.
+- « Compte rendu de While Black à Montréal ». Dans Apertura, Dominique Fontaine (2023) : 31-34.
 
 
 > Koupe tèt boule kay!
